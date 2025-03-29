@@ -1,9 +1,13 @@
 MC Mirella está nos Trending Topics do X (antigo Twitter) após ter um vídeo íntimo com o marido Dynho Alves, vazado na madrugada desta quinta-feira (27). A funkeira e influenciadora digital produz conteúdo adulto para plataformas +18 como Privacy e o amado costuma aparecer em diversos vídeos sexuais.
 
 
-É de graça: Acompanhe as notícias no grupo do WhatsApp exclusivo do CORREIO
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-O vídeo de sexo explicíto com o pai de sua filha, Serena, de 1 ano, deixou os internautas surpresos e comentários sobre a performance da MC na cama começaram a surgir sem pudor. “Que vídeo diabólico da MC Mirella, foi combo de sentada fraca + sem gemer”, disse uma internauta. “Se até a MC Mirella não aguenta mais de um minuto sentando que sou eu pra aguentar mais, né? Tô bem tranquila agora”, disse outra.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+
 
 Já uma terceira ponderou as críticas. “Estão criticando a MC Mirella por não gemer durante o sexo, cadê o respeito por nós pessoas silenciosas na hora H? super simpatizo com a diva, menos som e mais prazer!”, disparou.
 
