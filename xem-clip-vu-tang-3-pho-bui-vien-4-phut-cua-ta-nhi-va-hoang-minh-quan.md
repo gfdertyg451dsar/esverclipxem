@@ -1,7 +1,12 @@
 Gần đây, mạng xã hội Việt Nam xôn xao trước một đoạn video ngắn ghi lại khoảnh khắc lãng mạn giữa Tạ Nhi và Hoàng Minh Quân tại một quán bar trên phố Bùi Viện, TP.HCM. Đoạn video vỏn vẹn 4 phút, được lan truyền với tốc độ chóng mặt.
 
-Vụ tầng 3 phố Bùi Viện 4 phút của Tạ Nhi và Hoàng Minh Quân
-Những ngày gần đây, mạng xã hội Việt Nam xôn xao trước một đoạn video ngắn ghi lại khoảnh khắc lãng mạn giữa Tạ Nhi và Hoàng Minh Quân tại một quán bar trên phố Bùi Viện, TP.HCM. Đoạn video vỏn vẹn 4 phút, được lan truyền với tốc độ chóng mặt, đã thu hút sự chú ý đặc biệt của cộng đồng mạng bởi sự đáng yêu và chân thật của cặp đôi này.
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Đoạn video ghi lại cảnh Tạ Nhi và Hoàng Minh Quân ngồi cạnh nhau trên tầng 3 của một quán bar nổi tiếng ở Bùi Viện. Trong khoảng thời gian ngắn ngủi đó, cả hai đã trao nhau những cử chỉ ân cần, ánh mắt tình tứ và nụ cười rạng rỡ. Dù không có những hành động quá phô trương, sự ngọt ngào và tình cảm chân thành mà cặp đôi dành cho nhau đã khiến người xem không khỏi xao xuyến.
 
