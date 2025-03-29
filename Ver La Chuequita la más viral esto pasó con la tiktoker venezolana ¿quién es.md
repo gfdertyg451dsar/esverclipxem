@@ -1,10 +1,13 @@
 La Chuequita la más viral: esto pasó con la tiktoker venezolana, ¿quién es?
 Descubre lo que paso con la Chuequita la más viral, la creadora de contenido público un video para explicar lo que sucedió en TikTok y Twitter.
 
-Imagen de La Chuequita la más viral: esto pasó con la tiktoker venezolana, ¿quién es?
-La Chuequita es tendencia por la viralización de un video. - Diseño: Tunota
 
-En las últimas horas, el nombre de La Chuequita la más viral o conocida como Yeximar ha acaparado la atención de los internautas, después que realizar una denuncia pública en contra de un hombre apoda como Nexi Morales quien la grabó inconscientemente, y expuso imágenes sensibles en las redes sociales,
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Mediante un video en su cuenta de TikTok, la popular creadora de contenido expuso la situación que atraviesa y además lamentó lo sucedido. También pidió el apoyo de sus seguidores, para que el clip grabado llegue a la persona involucrada.
 
