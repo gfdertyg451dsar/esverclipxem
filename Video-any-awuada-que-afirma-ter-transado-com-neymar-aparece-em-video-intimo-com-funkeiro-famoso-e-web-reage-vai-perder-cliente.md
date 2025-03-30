@@ -3,9 +3,12 @@ Acompanhante que alegou envolvimento com Neymar se exibe ao lado de funkeiro fam
 29 mar
 
 
-Any Awuada, que afirma ter transado com Neymar, aparece em vídeo íntimo com funkeiro famoso e web reage: 'Vai perder cliente'.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-A garota de Programa, Any Awuada, que ganhou destaque após alegar um envolvimento com Neymar, voltou a chamar atenção nas redes sociais nesta sexta-feira (28). A influenciadora, também conhecida como a 'Ruiva do Job' compartilhou um vídeo no qual aparece em clima de intimidade com o cantor de funk de São Paulo.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 No registro divulgado em seu Instagram, Any filma o funkeiro, interage com seu cachorro e exibe imagens que parecem ser do apartamento do artista. O conteúdo rapidamente viralizou e gerou uma série de comentários entre os seguidores.
 
