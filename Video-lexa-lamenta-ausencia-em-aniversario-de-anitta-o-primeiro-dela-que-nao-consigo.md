@@ -2,7 +2,13 @@ Lexa lamenta ausência em aniversário de Anitta: 'O primeiro dela que não cons
 Cantora Lexa lamenta ausência em festas promovidas por Anitta para comemorar seu aniversário e faz homenagem e data especial para a poderosa
 
 
-Lexa falou sobre o aniversário de 32 anos de Anitta
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+
 
 Lexa homenageou Anitta neste domingo (30) no aniversário de 32 anos da poderosa. Em uma publicação nas redes sociais, a intérprete de Sapequinha desejou tudo de melhor para a amiga, mas lamentou a ausência nas badaladas festas de comemoração promovidas pela famosa.
 
