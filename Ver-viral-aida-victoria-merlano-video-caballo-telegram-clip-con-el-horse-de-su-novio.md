@@ -1,12 +1,13 @@
 Aida Victoria Merlano video caballo Telegram: ¿clip filtrado con el horse de su novio?
 ¿Viste el 'Aida Victoria Merlano video con un caballo Telegram'?, en redes circula que fue capatada sosteniendo un encuentro íntimo con el horse de su novio.
 
-Imagen de Aida Victoria Merlano video caballo Telegram: ¿clip filtrado con el horse de su novio?
-Aida Victoria Merlano es tendencia tras la filtración de un video con un caballo en Telegram. - Diseño: Tunota
 
-En las últimas horas, las redes sociales han estallado en torno la supuesta filtración de Aida Victoria Merlano en video sosteniendo relaciones sexuales con un caballo en Telegram. Según afirman varios internautas se trata del el horse de su novio.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-La supuesta filtración ha desencadenado múltiples reacciones en torno al metraje filtrado, destando incontables busquedas en redes sociales, principalmente en Telegram y X, donde varios uinternautas afirman tener en sus manos el metraje completo.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Cabe destacar que meses atrás se desato un rumor como el actual, ya que la creadora de contenido fue acusada de también sostener un encuentro intimo con un caballo después que su novio Juan David Tejada le regalara este mamífero que costo millones.
 
