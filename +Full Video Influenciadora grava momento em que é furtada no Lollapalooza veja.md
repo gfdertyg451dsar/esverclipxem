@@ -1,11 +1,12 @@
 A influenciadora Alexia Ferreira registrou o momento em teve um dos celulares furtados no festival Lollapalooza, no Autódromo de Interlagos, em São Paulo. O caso aconteceu no último sábado (29) durante o show de Alanis Morissette.
 
-Nas imagens, Alexia capta o momento em que um homem se aproxima dela, retira outro celular que ela guardava dentro de uma bolsa e vai embora.
 
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-Até agora, o vídeo publicado nas redes sociais soma mais de 1,5 milhões de visualizações no TikTok. No texto, ela pediu aos usuários que a "ajudem compartilhando, para mais pessoas verem a cara dos envolvidos".
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-Watch on TikTok
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Em entrevista ao g1, ela explicou que costuma andar com dois celulares por conta do seu trabalho de influenciadora.
 
